@@ -1,2 +1,0 @@
-# gloriashanti
-Website Portofolio
